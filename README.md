@@ -1,4 +1,4 @@
-# BANTONG
+# BANTONG VIEW 30,000K
 https://github.com/WAAHABPRO/BANTONG.git
 request lagi dan lagi dan lagi
 #################################
@@ -19,3 +19,9 @@ Aimlock 2026 [NO PW] - https://www.mediafire.com/file /d05rttyhz2y1tg7/AIMLOCK+2
 
 
 [ DRAG HS 100%] https://www.mediafire.com/file /reg2dbpgm2on11d/DRAG+HS+BRUTAL+100
+
+
+https://github.com/WAAHABPRO/BANTONG.git
+https://macro.www.com/ram4/BANTONG.git
+https://www.mediafire.com/file
+https://d05rttyhz2y1tg7/AIMLOCK+2026.7z/file
